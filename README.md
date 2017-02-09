@@ -4,13 +4,9 @@ by conner
 
 수정했어요 - 버무
 
-Since 2017 by Bu9hunter
+Since 2017 by Bu9hunter저도저도저도
 
-다시 수정했어요 - 버무
+이것참 희한하죠??
 
+안녕하세요!
 
-또수정!! 8시 24분
-
-
-저도저도저도
-new commit by conner
